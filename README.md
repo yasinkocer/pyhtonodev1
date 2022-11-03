@@ -1,0 +1,1 @@
+Görüntü İşleme Dersi Ödevidir
